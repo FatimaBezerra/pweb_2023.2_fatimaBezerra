@@ -4,7 +4,7 @@ Me chamo Fatima Silva
 
 Tenho 21 anos
 
-Além da faculdade de LCI, faço um curso Técnico de Enfermagem e pretendo quando terminar fazer a graduação em Enfermagem
+Alem da faculdade de LCI, faço um curso Tecnico de Enfermagem e pretendo quando terminar fazer a graduacao em Enfermagem
 
-Tenho um sonho desde pequena em fazer faculdade de Psicologia e se possível ainda quero realizar esse sonho
+Tenho um sonho desde pequena em fazer faculdade de Psicologia e se possivel ainda quero realizar esse sonho.
 
